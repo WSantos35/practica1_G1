@@ -4,3 +4,4 @@ Rafael Alejandro Juarez Yantuche 201021164
 Kelvin Manfredy Vásquez Gómez 201212490
 William Alexander Santos Colindres 201700662
 Eddie Augusto Alvarez Salazar 201700326
+Lester Fernando Mazariegos Navarro 201403610
